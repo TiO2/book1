@@ -1,7 +1,9 @@
 .. _robertDuggan:
 
-Robert Duggan
-=============
+Robert Duggan 中文
+=======================
+
+测试中文
 
 Robert Duggan, CEO of biotech drugmaker Pharmacyclics PCYC,  will pocket over $3.5 billion from the company’s sale to AbbVie ABBV, one of the biggest paydays ever from the buyout of a publicly held company.
 

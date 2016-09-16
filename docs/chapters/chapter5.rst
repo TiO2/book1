@@ -1,14 +1,477 @@
-.. _CERU:
+.. _shopping:
 
-Cerulean Pharma Inc 
+购物心得 
 ===================
 
-Cerulean Pharma Inc. (NASDAQ: CERU) announced that the U.S. Food and Drug Administration (FDA) granted Fast Track designation for Cerulean’s lead nanoparticle-drug conjugate, CRLX101, in combination with paclitaxel, for the treatment of platinum-resistant ovarian carcinoma, fallopian tube or primary peritoneal cancer.
 
-“We appreciate the FDA’s acknowledgement of CRLX101’s potential in an area of significant unmet medical need,” said Christopher D. T. Guiffre, President and Chief Executive Officer of Cerulean. “We are encouraged by the profound treatment effect observed early in the ongoing clinical trial with the GOG Foundation, Inc. (GOG), and we look forward to working closely with the FDA as we endeavor to bring a new treatment option to women living with platinum-resistant ovarian cancer.”
+网上畅销家具大选购
+------------------
 
-CRLX101 is being evaluated in combination with weekly paclitaxel for the treatment of recurrent platinum-resistant ovarian carcinoma in a Phase 1b/2 clinical trial. Data from the Phase 1b portion of the trial were the subject of an oral presentation at the Gynecologic Oncology 2016 Conference in May. These data showed that five of the first nine patients (56%) enrolled in the trial achieved partial responses. Of note, five of the nine patients enrolled in the Phase 1b trial previously failed Avastin® (bevacizumab) and three of these five patients achieved partial responses. Cerulean is conducting this trial in collaboration with the GOG and expects to provide an update at the European Society for Medical Oncology 2016 Congress.
 
-In 2015, CRLX101 was granted Orphan Drug designation for the treatment of ovarian cancer.
 
-The FDA’s Fast Track Program is designed to facilitate the development and expedite the review of new drugs that are intended to treat serious conditions and that demonstrate the potential to address unmet medical needs. Drugs that receive this designation benefit from more frequent communications and meetings with FDA to review the drug’s development plan, including the design of the proposed clinical trials and the extent of data needed for approval.
+亚马逊八大省钱秘诀
+------------------
+
+
+
+
+超全美帝超市介绍+省钱攻略
+------------------------
+
+来美国生活学习，一定离不开超市。美国的超市包罗万象，不仅能够采购食品蔬菜、生活用品、衣鞋百货、家具家电，甚至还可以买车（比如逆天的Costco）。总之，你能想到的商品，都有可能在超市找的到。
+
+
+考虑到美国的超市品牌繁多，难以一一列举。以下，Dealmoon小编将尝试按照超市类别，介绍一些在全美各地较为常见的超市品牌,并和你简单分享不同超市的特点和省钱攻略，看看哪个超市更合你意哦！
+
+1. 综合类超市
+2. 食品类超市
+3. 药品类超市
+4. 文具类超市
+5. 电器类超市
+6. 五金类超市
+7. 运动类超市
+8. 户外类超市
+9. 一元店超市
+10. 萌宠类超市
+
+1. Costco （好市多，很多粉丝喜欢叫它“扣死扣”）
+
+
+
+超市简介：
+
+
+Costco是美国最大的连锁会员制仓储店，绝对是超市中的巨无霸。Costco 所卖的产品份量大，基本上全是家庭装，特别适合一家人分享，价格相对普通超市更加低廉，但是质量也是杠杠的。
+
+
+这种大分量、简包装、低价位的销售方式实在是太深得老美的心了，所以每到周末，Costco门口巨大的停车场就人满为患。其实Costco 的感觉和Sam's Club没什么两样，但是貌似Costco 就是要火爆很多。
+
+
+
+省钱攻略：
+
+
+Costco也是会员制，如果想要在Costco买东西，可以办一张Costco会员卡或信用卡。会员卡年费55美元，可供家庭多人使用。随便在Costco买点什么就会赚回来的。Costco的便宜汽油只有会员独享，一般都会比普通的加油站每加仑便宜10-20美分！
+
+
+Costco里的商品种类极尽丰富，吃的用的应有尽有。在Costco官网上还会有一些租车旅游的好Deal，如果你是会员一定要充分利用。Costco总是有很多试吃试喝的活动，饭量小的走一圈吃一圈就饱了。
+
+
+2. Target（塔吉特）
+
+
+
+
+超市简介：
+
+
+被认为是“中产阶级”的Target是很多人的最爱。其实，Target的产品结构和Walmart很相似，也是日用百货，食品医药，衣帽鞋包和家电器械等，但不论是超市摆设、产品质量还是商品价格，你都能感觉到Target似乎更高端一些。
+
+
+Target有很多质量非常好的母婴用品，它家的家居用品也不少，追求生活质量的同学，可以从Target搜罗到很多很有趣的生活小物件，用来布置你在北美的新窝。
+
+
+值得一提的是，Target虽然是超市，但在时尚和美容方面做得也很好，它和大牌设计师合作，推出Target Fashion，很多开架的美容美妆产品也不次于大牌，如喜欢韩系护肤品的童鞋不能错过的兰芝。
+
+
+
+								
+								
+
+							
+
+省钱攻略：
+
+
+经常去Target购物的同学可以办一张Target的红卡REDcard。它分借记卡（Debit Card）和信用卡（Credit Card）两种，Debit卡直接连上已有的支票账户，像银行ATM卡一样用，直接从支票账户过账。
+
+
+好处是每次在Target购物用红卡结账时都会有额外5% Off，还有延长30天退货时间。除此以外用红卡在Target.com网购还能无下限免邮。
+
+
+3. Walmart（沃尔玛）
+
+
+
+超市简介：
+
+
+作为全球500强企业，沃尔玛自然是无人不知、无人不晓。对于很多刚来美国的同学来说，在国内就已经接触过的沃尔玛自然是不二选择。
+
+
+沃尔玛产品丰富、价格便宜，始终保持着最低价的策略，同类的商品你总是能在沃尔玛找到最低价的选择。几美元的T-shirt，十几块钱的鞋，质量还都不错，很多中低收入的美国人经常在沃尔玛买衣服。
+
+
+除了日用百货，沃尔玛还有很多电子影像设备，比如高清DVD，iPhone、 iPad，每年黑五销售季，沃尔玛打折的电子产品绝对是大家疯抢的对象。一句话，沃尔玛基本称得上是应有尽有了！
+
+
+沃尔玛现在主要分为四种形式，沃尔玛购物超级市场（Walmart Supercenters），沃尔玛折扣店（Walmart Discount Stores），沃尔玛社区店（Walmart Neighborhood Market，一般只卖食品类），山姆会员商店（Sam's Club，大宗仓储型超市）。
+
+
+省钱攻略：
+
+
+沃尔玛不需要会员卡，所有人享受统一最低价，其实去沃尔玛购物就已经很省钱了。如果想加入Sam's Club购买大宗低价商品，需要缴纳45美元/年的会费，可以多人使用。
+
+
+二、副食类超市
+
+
+1. Trade Joe's
+
+
+
+超市简介：
+
+
+人送爱称“缺德舅”的Trade Joe's，是一家标榜天然、环保、平价的连锁超市，主打有机食材和各种奇奇怪怪的美味零食，是许多吃货的大爱。
+
+
+这家店可以被称为 “小型食品联合国”，货架上摆着各国的特色小吃，而且经常会有一些让人惊艳的好东东，比如印度的飞饼、咖喱角，精美的日本冰淇淋，英国的柠檬酱，法国的鹅肝起司、马卡龙，还有中国的烧麦、饺子。
+
+
+一些同学总抱怨在美国只有咸味的爆米花，缺德舅家就有甜味的，和国内的味道一模一样！它家的寿司沙拉价格很亲民，大约在$3.99-$8.99之间，离的近的可以考虑一下。
+
+
+
+省钱攻略：
+
+
+“缺德舅”没有会员卡，没有优惠券，也不做任何促销活动，高冷的一塌糊涂。不过吃货们还是有办法！运通Blue Cash Preferred信用卡在美国任意超市消费返现6%，这次舅是“逃不脱”了，6%返现不拿白不拿。
+
+
+2. Whole Foods
+
+
+
+
+超市简介：
+
+
+说完了“缺德舅”，我们来看一看“猴父子”。它是超市里的白富美，是美国最受欢迎的有机食品连锁店。它家的所有产品从食品、到日用百货、甚至衣物都是有机的，深受时尚大咖，小资群体和健康达人的追捧。
+
+
+据说好多明星都喜欢逛“猴父子”，所以价格就不会很亲民。不过体会了那里的环境和食物品质，很多人还是觉得物有所值的。
+
+
+Bakery区的各类小点心很棒，价格也比较公道。平时如果懒了，可以去买一份称重的午餐或者三明治，大约是$6.99-8.99/磅，价格相对合理，味道也很赞！
+
+
+
+省钱攻略：
+
+
+价格昂贵的“猴父子”也很高冷，没有会员卡，偶尔出现买$20送$5的礼卡。在其官网上夏季省钱攻略之一“把你的价格减半”（Cut Your Costs In Half）写的是，如果你愿意，Whole Foods可以卖给你半个瓜果或者半截面包。
+
+
+但是，Whole Foods和一些信用卡有合作，比如运通Blue Cash Preferred信用卡，在美国超市消费返现6%。
+
+
+3. Kroger
+
+
+
+超市简介：
+
+
+根据维基百科的介绍，它（The Kroger Company）是全美营业额最高的连锁超市（Supermarket Chain）。仅次于沃尔玛，是全美排名第二大的综合零售商（General Retailer）。
+
+
+Kroger是美国的老牌超市，具有百年的历史，与Walmart等综合类超市不同，Kroger 属于副食类超市（Grocery Store），一般只卖食品和日用消费品。特别要提一下，Kroger是购买水果的好地方，常常有特价水果，而且很新鲜。
+
+
+
+省钱攻略：
+
+
+Kroger也有免费的会员卡可以申请，很多会员价格的商品甚至可以和Walmart的低价相媲美。而且，每个周五都是Kroger的打折日，会推出很多的“一口价”5刀特价商品。Kroger有自己的加油站，根据会员卡的积分来决定油价的折扣力度。
+
+
+4. Safeway
+
+
+
+超市简介：
+
+
+Safeway是总部位于加州的一家副食类连锁超市。相对于Walmart等综合超市来说，商品的价格略高，但是购物体验要好很多。和大型超市比起来，Safeway很多都开在住宅区附近，方便顾客们日常的新鲜食物采购。
+
+
+你觉得你对Safeway的名字陌生么？但你很有可能就是它家的消费者哦。实际上，Safeway在不同地区有7个不同品牌，小伙伴们对号入座看看吧。
+
+
+    Carrs-Safeway （阿拉斯加州）
+
+    Pak'n Save（加州）
+
+    Pavilions （南加州）
+
+    Randalls （德州）
+
+
+    Safeway (阿拉斯加州、亚利桑那州、北加州、科罗拉多州、哥伦比亚特区、特拉华、夏威夷、爱达荷州、马里兰州、蒙大拿、内布拉斯加、内华达、新墨西哥、俄勒冈州、南达科他州、弗吉尼亚州、华盛顿、怀俄明州）
+
+    Tom Thumb （德州）Vons（南加州和内华达州）
+
+
+
+省钱攻略：
+
+
+经常去Safeway的同学，记得办一个免费的会员卡，会员价要比普通价格优惠不少，Safeway旗下不同品牌的会员卡是可以共用的，不必重新办理。如果你下载了Safeway的手机App，时常刷一刷还能找到更为优惠的“Just for You"专属价格！
+
+
+5. Sprouts
+
+
+
+ 
+
+超市简介：
+
+
+Sprouts也是一家专门卖副食类的超市，它比一般的副食超市要小一些，供应新鲜、健康的食物，也有一些维他命和日常用品等。Sprouts称自己是“Farmers Market”，也是就农民们的超市，所以商品主打就是新鲜啦。
+
+
+不论是周末还是日常，能看到很多美国人在这里买菜，它绝对称得上是美国人民的新鲜“菜市场”。
+
+
+
+
+省钱攻略：
+
+
+虽然商品都是新鲜、健康的食品，但是Sprouts价格其实还是挺亲民的。它没有会员卡，但是运气好的话能选到贴有“Manager Special”的特价商品，价格通常都超级诱人哦！
+
+
+Sprouts在官网上有可供打印的优惠券（Coupon），喜欢提前列购物清单的小伙伴们可以去看看有没有合适的Deal。
+
+
+1. CVS
+
+
+
+
+超市简介：
+
+
+CVS是美国销售额排名第二，但是门店最多的药品连锁店。它在招牌上都写着Drugstore，但实际上也卖食品和日用百货，是购买日常生活护理用品及药品食品的好去处。
+
+
+与Walmart，Safeway，Costco等大型超市不同，这些Drugstore店面规模相对较小，所以很容易深入城市中心，经常会开在繁华商业区和人流集中的地区。
+
+
+CVS主打保健用品和药品，有一些自营品牌的商品很好用。平时头疼脑热都可以在这边找到“解药”，而且它有很多平价而且好用的美容美妆产品，是很多美容爱好者的必去之处。
+
+
+
+省钱攻略：
+
+
+最方便的是申请一张CVS免费会员卡，可用于在店内和网上购物。当你用这个卡买促销指定数量或金额的东西后（比如买满$20返$5），就可以得到一些Extra Bucks，可以像现金一样使用。
+
+
+CVS每周都会有不同的优惠活动，可以从周日报纸或者店门口的广告里寻找宣传单，或者从CVS官网注册个邮件，会直接发到你的邮箱里。
+
+
+在CVS店里有一个小红机器，用来查询商品的价格和打印优惠券，很多人不太知道打印优惠券这个功能，其实你只要在这儿机器上刷CVS卡，就会得到若干优惠券。
+
+
+2. Walgreen
+
+
+
+ 
+
+超市简介：
+
+
+Walgreen是美国销售额排名第一的药品连锁店。和CVS基本差不多，Walgreen的店面也是有大有小，常在大城市的市中心找得到。它售卖的商品也不只是药类，还包括普通消费品，照片冲印和健康卫生服务等。
+
+
+省钱攻略：
+
+
+和CVS的Coupon不同，Walgreen是直接积分换钱，可以在之后的消费中兑现。具体方法很简单，也是先要去申请一张免费的Rewards Card，用它每次买东西都会赚积分。
+
+
+请留心Walgreens家的促销信息，不定时有积分奖励，比如两瓶X饮料得1000积分等等，当积分达到5000，你就可以换钱了！
+
+
+5000分＝$5，10000分＝$10。累积更高分数有更划算的兑换率，如18000分＝$20！（规则可能有变，以官网为准哈！）付款的时候跟收银员说你想Redeem分数就好了。
+
+
+Walgreen还有一种Register Rewards，就是当你买某些注明了会返还特定金额RR的商品时，收银员会打印给你一张Coupon，这张Coupon通常要在两个礼拜内使用，否则作废，下次买东西直接当现金抵用就可，非常方便。
+
+
+3.Rite Aid
+
+
+
+超市简介：
+
+
+Rite Aid是美国排名第三的药品连锁店。基本上和CVS、Walgreen没什么差别，请同学们参照上面两条的介绍。
+
+
+省钱攻略：
+
+
+Rite Aid省钱还是主要依赖Coupon，经常去店里和网上晃一晃，有时候会找到很给力的折扣！另外他们家也有返店里的代金券的活动，比如买指定商品满$20返$5代金券等。
+
+
+这家虽然返钱活动不多，但打折很给力，比如有时候清仓买他们家的文具，小编曾经看见过原价$6.99的笔只卖99美分，还曾用$3.99买到过吹风机。所以如果离家近时不时逛一逛还是会很有收获的。
+
+
+
+1. Staples
+
+
+
+超市简介：
+
+
+Staples成立于1986年，是目前美国最大的办公室用品连锁店。销售的商品主要是各类办公室用品、办公设备、学习用品、家具、技术和商业服务。你能想到的、想不到的办公相关用品，Staples是应有尽有。
+
+
+
+省钱攻略：
+
+
+作为实体店起家的办公用品超市，Staples受来自Amazon等电子购物网站的冲击十分的大，所以为了吸引更多的消费者，Staples可谓是折扣多多。
+
+
+如果你关注北美省钱快报，你肯定看到过Staples各种亮瞎人双眼的给力折扣。小编自己就曾花$4.99买过Staples多用途打印纸一箱，5000张啊，不是道能用到何年月了。
+
+
+此外，还能通过各种电子礼卡促销活动省钱，比如现在就能以$170购入Staples价值$200 的电子礼卡。除了各种各样的商品折扣信息，想省钱还可以加入Staples Rewards Program 计划，每次购物都能获得5%的返还和免邮费服务。
+
+
+2. Office Depot & Office Max
+
+
+
+
+超市简介：
+
+
+首先要提一下的是，在2013年11月5日Office Depot 已经和OfficeMax合并了。虽然两家都还包邮各自的品牌，但其实区别已经不大，连网站都合并了，所以这里也不再分开介绍。
+
+
+官网上的介绍是，无论你的工作地点是普通办公室、家庭办公室、学校，甚至是汽车里，Office Depot & OfficeMax 都能为你提供所需的产品、服务和解决方案。
+
+
+对于咱们多数消费者来说，它其实就是个普通的办公用品商店。卖的东西包括科技产品、办公室用品、家居和学习用品等。此外，Office Depot & OfficeMax还提供复印、打印业务，电子产品维修服务等。
+
+
+
+
+省钱攻略：
+
+
+Office Depot & OfficeMax有每日特价和可打印的折扣券，小伙伴可免费加入Office Depot & OfficeMax 的Rewards+会员，加入后购买打印纸、墨盒、碳粉，或是复印打印、邮寄服务可以享受价格10%的返还。此外，还享有会员专享的优惠和会员生日额外奖励。
+
+
+1. Best Buy（百思买）
+
+
+
+ 
+
+超市简介：
+
+
+百思买大家都很熟悉了。这家1966年成立的电子商品销售超市是美国最广为人知的品牌之一。除了销售品类齐全的电子电器产品，Best Buy还提供被称为Geek Squad的服务，内容包括咨询、安装、维修和回收等一系列服务。
+
+
+
+
+省钱攻略：
+
+
+除了多留意打折促销的信息之外，还可以通过注册My Best Buy消费者忠诚计划来省钱。加入这个计划是免费的，加入之后每消费$250都能获得$5的返还，返还的钱可以用于在Best Buy实体店或网店购物。此外，作为My Best Buy会员，还可以享受网络购物达$25及以上免费送货。
+
+
+如果你有一个.edu结尾的学生邮箱，用这个邮箱注册Best Buy的College Student Deals（在校学生优惠）。注册之后，通常在学期起始，Best Buy会通过注册邮箱发送给你专享优惠。
+
+
+2. RadioShack
+
+
+
+ 
+
+超市简介：
+
+
+1921年就已经成立的电子产品零售商。但是在经历了连续11个季度的亏损后，RadioShack已经在今年2月申请了破产保护。可能是希望力挽狂澜、改变颓势，RadioShack网站上即将推出DIY/Maker的服务，也就是提供一些有趣小物的制造方法。
+
+
+目前在列的一个项目是“INFINITY MIRROR”（无穷镜屋），有兴趣的朋友们可以去看看。
+
+
+
+
+省钱攻略：
+
+
+别人已经濒临破产了，咱们就少沾RadioShack的光了吧……实情是，小编在网上搜了一下，好像除了可打印的优惠券也没什么其他的省钱方式了。
+
+
+3. Fry's Electronics
+
+
+
+
+超市简介：
+
+
+Fry's Electronics的口号是“We Match Internet Prices”（我们可以与网络商品的价格比肩），所以你知道啦，它是一个价格相对低廉的电子商品超市。
+
+
+Fry's Electronics售卖的商品包括软件、消费电子产品、家用电器和电脑硬件等。此外，Fry's Electronics还提供电脑维修和定制化装配电脑的服务。
+
+
+省钱攻略：
+
+
+Fry's Electronics本身价格已经不高了，所以能够找到的省钱方式不是很多。但是，消费者通过在其官网注册会员，可以通过邮件收到专属的折扣信息，或者订阅Fry's Electronics的Facebook主页也是可以得到相关折扣信息的。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

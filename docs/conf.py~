@@ -247,6 +247,7 @@ if on_rtd:
     # The font size ('10pt', '11pt' or '12pt').
     #'pointsize': '10pt',
     # Additional stuff for the LaTeX preamble.
+    
     'preamble': r'''
     \hypersetup{unicode=true}
     \usepackage{CJKutf8}
@@ -285,6 +286,7 @@ else:
     'label': '\\usepackage[english]{babel}',
     'papersize': 'letterpaper',
     'pointsize': '12pt',
+    'figure_align': 'H',
 
     # Additional stuff for the LaTeX preamble.
     'preamble': '''

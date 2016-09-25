@@ -3,10 +3,12 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Welcome to tio2 book's documentation!
-=====================================
+Welcome to my Book
+==================
 
-This book is meant to be a collention of investing stories and stories for different companies such as biotech pharmaceutical companies. 
+This **lengadary** book is meant to be a collention of stories and guide for foreign students who are currently studying in the USA and for tourists who visit the USA. 
+
+More contents will be added. **Stay with us**. 
 
 Contents:
 
@@ -26,4 +28,5 @@ Indices and tables
 * :ref:`genindex`
 * :ref:`modindex`
 * :ref:`search`
+
 

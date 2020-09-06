@@ -241,6 +241,8 @@ htmlhelp_basename = 'tio2bookdoc'
 latex_engine = 'xelatex'
 latex_use_xindy = False
 latex_elements = {
+    'papersize': 'letterpaper',
+    'pointsize': '12pt',
     'preamble': '\\usepackage[UTF8]{ctex}\n',
 }
 

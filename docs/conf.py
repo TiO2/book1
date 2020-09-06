@@ -238,6 +238,7 @@ htmlhelp_basename = 'tio2bookdoc'
 # -- Options for LaTeX output ---------------------------------------------
 
 # -- Options for LaTeX output ---------------------------------------------
+latex_engine = 'xelatex'
 import os 
 on_rtd = os.environ.get('READTHEDOCS', None) == 'True'
 if on_rtd:

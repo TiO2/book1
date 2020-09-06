@@ -9,9 +9,9 @@ See the html version of the book live: [documentation][docs].
 [docs]: http://book1.readthedocs.io
 
 ### Tech
-Used sphnix. 
+Used Sphnix. 
 
-To compile the book:  
+To compile the book locally:  
 	cd docs
 	# make html
 	make html
@@ -27,7 +27,12 @@ After running the JPG image through the conversion tool of Image Magick convert,
 To fix this please open the JPG file in an image manipulation program and save it again. 
 
 
-###XELATEX needed for compling Chinese
+###XELATEX needed for compling Chinese. 
+Updates:
+Used the [The ctex Bundle Classes](https://www.overleaf.com/learn/latex/chinese). 
+
+
+Previously:
 
 https://blog.seisman.info/trash/sphinx-chinese-support/
 
